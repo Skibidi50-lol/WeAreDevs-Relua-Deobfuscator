@@ -1,2 +1,2 @@
 # WeAreDevs-Relua-Deobfuscator
-yeahyeah
+yeahyeah | UPDATE : also filippiinos skid are skidding my code lol
