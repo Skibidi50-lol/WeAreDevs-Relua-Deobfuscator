@@ -1,2 +1,2 @@
 # WeAreDevs-Relua-Deobfuscator
-yeahyeah | UPDATE : also filippiinos skid are skidding my code lol
+yeahyeah | UPDATE : also filippiino skids are skidding my code lol
